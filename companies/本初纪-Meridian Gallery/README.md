@@ -1,7 +1,7 @@
 # 本初纪-Meridian Gallery · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:民企 · 行业:文化/传媒/广告/体育
@@ -13,4 +13,4 @@
 ### JOIN US | 本初纪 Meridian Gallery 2026 夏季实习生招聘
 岗位:画廊助理实习生（日常运营）  ·  批次:暑期实习  ·  学历:本科/硕士/博士  ·  城市:北京市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/41322)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/41322)

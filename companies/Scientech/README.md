@@ -1,7 +1,7 @@
 # Scientech · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:外企 · 行业:金融业
@@ -13,9 +13,9 @@ Scientech Research是一家全球领先的量化对冲基金，以核心高频�
 ### Scientech 2026 校招正式启动！
 岗位:量化研究员;量化开发工程师  ·  批次:实习/秋招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/28778)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/28778)
 
 ### Scientech 2026 春招&暑期实习招聘全球启动！
 岗位:量化研究员;量化开发工程师  ·  批次:暑期实习/春招专场  ·  学历:本科/硕士/博士  ·  城市:上海市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/35949)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/35949)

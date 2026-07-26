@@ -1,7 +1,7 @@
 # 沃尔沃汽车 · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:外企 · 行业:汽车制造/维修/零配件
@@ -13,4 +13,4 @@
 ### 精英集结！沃尔沃汽车2026 AI FDE CAMP实习生项目已开启
 岗位:Digital AI Coding Intern Program/数字化AI Coding 实习生项目  ·  批次:实习/暑期实习  ·  学历:本科/硕士/博士  ·  城市:上海市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/40022)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/40022)

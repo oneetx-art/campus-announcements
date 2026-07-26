@@ -1,7 +1,7 @@
 # 德硕管理咨询（深圳）有限公司 · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:外企 · 行业:财务/审计/税务
@@ -13,9 +13,9 @@ ABeam Consulting集团成立于1981年，历经40余年的发展，先后在全�
 ### ABeam Recruitment | 德硕管理咨询（深圳）有限公司2026秋季校园招聘正式启动
 岗位:ERP咨询顾问  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:深圳市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/30875)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/30875)
 
 ### ABeam Recruitment | 德硕管理咨询（深圳）有限公司2026春季校园招聘正式启动
 岗位:ERP咨询顾问  ·  批次:春招专场  ·  学历:本科/硕士/博士  ·  城市:深圳市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/37128)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/37128)

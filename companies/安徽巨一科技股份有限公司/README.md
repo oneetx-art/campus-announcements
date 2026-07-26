@@ -1,7 +1,7 @@
 # 安徽巨一科技股份有限公司 · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:民企 · 行业:机械/制造业
@@ -13,4 +13,4 @@
 ### 校招相关岗位招聘
 岗位:集团IT岗;战略投资岗;JEE Global Management Trainee（Campus Recruitment， USA,Germany,Japan,China,etc）;制造技术类;项目管理类;算法软件类;采购管培生;财务管培生;人力管培生;电气研发方向  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:合肥市/海外  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/27276)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/27276)

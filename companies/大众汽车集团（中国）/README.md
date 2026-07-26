@@ -1,7 +1,7 @@
 # 大众汽车集团（中国） · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:合资 · 行业:汽车制造/维修/零配件
@@ -13,14 +13,14 @@
 ### 大众汽车集团（中国）2026届校园招聘正式启动
 岗位:研发类;软件类;智能物流;技术服务;职能类;IT类;市场与销售类  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/合肥市/全国多地  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/25790)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/25790)
 
 ### 校招正当时 共赴大众好春光 I 大众汽车集团（中国）2026届春招正式启动
 岗位:研发类（整车研发、电池等部件研发、软件开发及应用、电子电气架构（CEA）、产品与项目管理）；IT类（数据与人工智能、DevOps（开发运维）、信息安全、产品与项目管理）；职能类（财务、人力资源、企业安全、采购）  ·  批次:春招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/大连市/上海市/合肥市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/36300)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/36300)
 
 ### 大众汽车集团（中国）2026神经多元暑期实习项目正式启动招募
 岗位:IT Intern、Company Service Intern、Purchasing Intern、Regional Employee Service Intern (HR Intern)、Integrity & Compliance Intern、Automotive After-sales Intern；  ·  批次:实习/暑期实习  ·  学历:本科/硕士/博士  ·  城市:北京市/合肥市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/40880)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/40880)

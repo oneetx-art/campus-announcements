@@ -1,7 +1,7 @@
 # SparkData数花智算 · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:民企 · 行业:IT/互联网/游戏
@@ -13,4 +13,4 @@
 ### 招聘丨SparkData数花智算 AI Agent大数据暑期实习生招聘等你来投递！
 岗位:DataQ&A金融版—AI Agent大数据工程师实习生;RoiAI获客专家电商行业版—RoiAI大数据运营实习生  ·  批次:暑期实习  ·  学历:本科/硕士/博士  ·  城市:上海市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/40795)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/40795)

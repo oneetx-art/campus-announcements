@@ -1,7 +1,7 @@
 # MODEC · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:外企 · 行业:能源/化工/环保
@@ -13,4 +13,4 @@ MODEC成立于1968年，是全球领先的海上油气浮式解决方案提供�
 ### MODEC中国2026春季校园招聘职位汇总
 岗位:Field Control Engineer 现场控制工程师;Structure Engineer 船体结构设计师;Branding and Communications Specialist 品牌与传播专员  ·  批次:春招专场  ·  学历:本科/硕士/博士  ·  城市:大连市/南通市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/38283)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/38283)

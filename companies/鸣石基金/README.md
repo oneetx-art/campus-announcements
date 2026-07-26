@@ -1,7 +1,7 @@
 # 鸣石基金 · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:民企 · 行业:金融业
@@ -13,9 +13,9 @@
 ### 鸣石基金2026校园招聘全线开启
 岗位:量化因子工程师;AI量化工程师;QUANTITATIVE RESEARCH;QUANTITATIVE TRADER;量化开发工程师（C++）;市场管培生  ·  批次:秋招专场  ·  学历:硕士/博士  ·  城市:上海市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/25757)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/25757)
 
 ### 鸣石基金2026春季校园招聘正式开启
 岗位:量化因子工程师 AI算法工程师 暑期实习项目-Quantitative Research (monetization & optimization 量化开发工程师(C++)  ·  批次:实习/春招专场  ·  学历:硕士/博士  ·  城市:上海市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/35267)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/35267)

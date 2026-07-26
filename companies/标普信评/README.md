@@ -1,7 +1,7 @@
 # 标普信评 · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:外企 · 行业:财务/审计/税务
@@ -13,4 +13,4 @@
 ### 标普信评寒假实习项目启动 | 在实战中成长，为职业发展蓄力
 岗位:China Ratings Analytical Winter Intern  ·  批次:寒假实习  ·  学历:本科/硕士/博士  ·  城市:北京市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/33279)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/33279)

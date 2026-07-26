@@ -1,7 +1,7 @@
 # Partner One · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:外企 · 行业:财务/审计/税务
@@ -13,9 +13,9 @@ Partner One由一批经验丰富的专业招聘人员于2015年创立，分别�
 ### Partner One 2025-2026校园招聘启动
 岗位:实习助理顾问; 助理猎头顾问  ·  批次:实习/秋招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市/广州市/成都市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/32806)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/32806)
 
 ### Partner One 2026校园招聘火热进行中
 岗位:实习助理顾问（Internship）; 助理猎头顾问（Associate Consultant）  ·  批次:实习/春招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市/广州市/成都市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/35512)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/35512)

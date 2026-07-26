@@ -1,7 +1,7 @@
 # 佐敦集团 · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:外企 · 行业:能源/化工/环保
@@ -13,4 +13,4 @@
 ### 百年底色，携你出色
 岗位:初级化学师(R&D Junior Chemist);设备维护工程师(Maintenance Engineer);初级技术服务代表(Junior Coating Advisor);初级技术支持(Junior Technical Support Executive);销售培训生(Sales Trainee)  ·  批次:春招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市/广州市/贵港市/成都市/西安市/兰州市  ·  截止:已截止(2026-04-30)
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/39194)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/39194)

@@ -1,7 +1,7 @@
 # 正浩EcoFlow · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:民企 · 行业:机械/制造业
@@ -13,29 +13,29 @@
 ### 正浩EcoFlow2026届New Power全球校园招聘满电启动
 岗位:研发类;营销类;供应链类;职能类;设计类;产品类  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:苏州市/深圳市/西安市/海外  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/26115)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/26115)
 
 ### 正浩EcoFlow2026年全球校园大使招募计划启动
 岗位:全球校园大使  ·  批次:春招专场  ·  学历:本科/硕士/博士  ·  城市:全国多地  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/35161)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/35161)
 
 ### 3月热招｜正浩EcoFlow校招&实习&社招岗位
 岗位:电力电子软件工程师；无线软件开工程师；硬件测试工程师；单板工艺工程师（研发）；包装设计工程师；CBB工程师；器件设计师；配电工程师；整机工艺工程师；工业工程师；单板工艺工程师（供应链）；市场部实习生（荷兰语）；东南亚电商实习生；采购实习生；市场实习生（德语）；市场部实习生（德语）；整合营销实习生（法语）；欧洲销售实习生；渠道销售实习生；渠道销售实习生；内容运营实习生；日本DTC运营实习生；北美OTA实习生；海外社媒运营实习生；北美官网运营实习生；营销管培系统测试实习生；数据开发实习生；渠道运营实习生；法务合规实习生；法务实习生（涉外）；雇主品牌设计实习生；结构设计（西安）；高级电源硬件工程师（深圳）；高级嵌入式工程师；测试系统工程师（TSE）；高级电源软件工程师（深圳）；高级电源硬件工程师；TSE；3C物流代表；整机产品经理；软件产品经理；Business Development Manager - ANZ；Junior BD Manager - Energy Storage；Business Development Manager - Italy；Business Development Manager - Austria；Field Sales Manager - Benelux；Field Sales Manager - Scotland & Ireland；Business Development Manager-Real Standby；Energy Market Trading & Strategy Expert；Business Development Manager；IT产品经理（服务方向）；IT产品经理（供应链方向）；战略HRBP；战略运营经理；应用安全工程师；数据安全工程师；战略洞察高级经理；渠道总监；招聘经理（营销版）；全球人事经理；税务管理；成本会计；欧洲法务BP；法务经理（知识产权）；主计划工程师；S&OP工程师；海外仓运营统筹（日本区域）；海外仓管理工程师（仓储）；保税物料管理经理；采购运营经理（流程IT方向）；战略采购开发工程师；非生产采购工程师（物流类）  ·  批次:实习/春招专场/社招  ·  学历:本科/硕士/博士  ·  城市:苏州市/深圳市/西安市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/37999)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/37999)
 
 ### 正浩EcoFlow2027届海外留学生校招提前批正式启动
 岗位:研发类;产品类;营销服务类;采购管理类;供应链管理类  ·  批次:校园招聘  ·  学历:本科/硕士/博士  ·  城市:苏州市/深圳市/西安市  ·  截止:2026-08-30
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/39350)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/39350)
 
 ### 正浩EcoFlow2027届暑期实习生招聘正式启动
 岗位:研发类;产品类;供应链管理类;采购管理类;专业职能类  ·  批次:实习/暑期实习  ·  学历:本科/硕士/博士  ·  城市:深圳市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/40293)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/40293)
 
 ### 正浩EcoFlow2027届研发提前批全球校招正式启动
 岗位:电力电子硬件工程师 电力电子软件工程师 AI 算法工程师 嵌入式软件工程师 后端工程师 结构工程师 软件产品经理  ·  批次:秋招提前批  ·  学历:本科/硕士/博士  ·  城市:苏州市/深圳市/西安市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/41721)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/41721)

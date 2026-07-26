@@ -1,7 +1,7 @@
 # 拜耳 · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:外企 · 行业:医疗/医药/生物
@@ -13,14 +13,14 @@
 ### 拜耳全新管培生岗位等你 Pick !
 岗位:拜耳女性健康管理培训生  ·  批次:秋招专场  ·  学历:硕士/博士  ·  城市:北京市/上海市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/32618)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/32618)
 
 ### 重要通知，LEAP管培生热招中速来！
 岗位:LEAP 管培生  ·  批次:春招补招/社招  ·  学历:硕士/博士  ·  城市:丹东市/南通市/昆明市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/40908)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/40908)
 
 ### 拜耳AI Internship Program实习生招募正式启动
 岗位:AI Internship Program  ·  批次:实习/暑期实习  ·  学历:硕士/博士  ·  城市:北京市/上海市  ·  截止:已截止(2026-06-30)
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/41051)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/41051)

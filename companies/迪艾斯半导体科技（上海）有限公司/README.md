@@ -1,7 +1,7 @@
 # 迪艾斯半导体科技（上海）有限公司 · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:外企 · 行业:通信/电子/半导体
@@ -13,4 +13,4 @@
 ### 迪艾斯半导体科技（上海）有限公司2026年校园招聘
 岗位:DIS Hardware Design Engineer（硬件设计工程师，工作地点：上海、合肥）;DIS Software Development Engineer（软件开发工程师，工作地点：合肥）  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:上海市/合肥市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/33808)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/33808)

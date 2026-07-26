@@ -1,7 +1,7 @@
 # 乾象投资 · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:民企 · 行业:金融业
@@ -13,14 +13,14 @@
 ### 乾象投资2026届校园招聘全球启动
 岗位:量化研究员（深度学习、Alpha、组合优化等方向）;软件开发工程师（AI推理/优化、数据开发、交易系统、云原生、产品开发等方向）  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/24735)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/24735)
 
 ### 乾象投资 MetaSummer 2026 训练营正式启动
 岗位:量化研究实习生（MetaSummer 2026）; 软件开发实习生（MetaSummer 2026）  ·  批次:暑期实习  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/35123)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/35123)
 
 ### 乾象投资 MetaSummer 2026 训练营火热招聘中
 岗位:量化研究训练营（Alpha,Deep Learning）;工程实践训练营（高性能系统,GenAI）  ·  批次:暑期实习  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/39370)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/39370)

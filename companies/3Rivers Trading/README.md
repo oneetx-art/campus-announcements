@@ -1,7 +1,7 @@
 # 3Rivers Trading · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:民企 · 行业:金融业
@@ -13,9 +13,9 @@
 ### 3Rivers Trading | 2026春季招聘&暑期实习
 岗位:量化交易研究员,交易系统开发  ·  批次:暑期实习/春招专场  ·  学历:本科/硕士/博士  ·  城市:上海市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/37310)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/37310)
 
 ### 校园招聘 | 3Rivers Trading 2026暑期实习生项目正式启动！
 岗位:量化交易研究员  ·  批次:实习/暑期实习/春招专场  ·  学历:本科/硕士/博士  ·  城市:上海市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/39656)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/39656)

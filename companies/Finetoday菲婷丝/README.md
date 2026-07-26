@@ -1,7 +1,7 @@
 # Finetoday菲婷丝 · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:民企 · 行业:快速消费品
@@ -13,4 +13,4 @@ Finetoday菲婷丝诞生自拥有超过百年历史的堂“FineToiletry”部�
 ### Finetoday 菲婷丝2026届校招启动！
 岗位:营销培训生（上海）；市场培训生（上海）  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:上海市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/31598)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/31598)

@@ -1,7 +1,7 @@
 # 槟客文化 · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:民企 · 行业:文化/传媒/广告/体育
@@ -13,4 +13,4 @@
 ### 实习生招聘 | 与我们一起让香槟生活方式更精彩
 岗位:市场助理（实习-上海），Assistant(e) Communication et Marketing（实习-法国兰斯），Assistant(e) des Nouveaux Médias（实习-法国兰斯）  ·  批次:实习  ·  学历:本科/硕士/博士  ·  城市:上海市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/33082)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/33082)

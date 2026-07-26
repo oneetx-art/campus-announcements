@@ -1,7 +1,7 @@
 # Falcon Talent · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:民企 · 行业:咨询
@@ -13,9 +13,9 @@ Falcon成立于2009年6月，在过去数年中，蝉联猎聘非凡Hunter、REC
 ### Falcon Talent 2026届秋季校招“职”等你来
 岗位:猎头顾问助理实习生(可转正）  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市/武汉市/深圳市/成都市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/29221)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/29221)
 
 ### Falcon Talent 2026 届春季校园招聘正式启动！
 岗位:猎头顾问Intern(可转正)  ·  批次:春招专场  ·  学历:本科/硕士/博士  ·  城市:北京市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/36840)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/36840)

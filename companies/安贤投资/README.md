@@ -1,7 +1,7 @@
 # 安贤投资 · 校招公告
 
 > 聚合自各公司官方招聘渠道公开信息,由 Best校招 同步整理
-> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://你的主站域名)
+> 完整功能(投递跟踪 / 截止提醒 / 智能筛选)→ [前往 Best校招](https://www.besthotsearch.com)
 
 ## 公司
 性质:民企 · 行业:金融业
@@ -13,9 +13,9 @@
 ### 安贤投资2026年校园招聘
 岗位:Quant PM;量化CTA策略;GLOBAL EQUITIES策略;CHINA EQUITIES策略;量化开发  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市/厦门市  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/27570)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/27570)
 
 ### 安贤投资 2026暑期实习项目本周启动
 岗位:投资经理,量化研究员,机器学习研究员,量化开发工程师,AGENT HARNESS 研究工程师  ·  批次:暑期实习  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市/海外  ·  截止:尽快投递
 
-👉 [立即投递 / 查看完整详情](https://你的主站域名/announcements1/41550)
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/41550)
