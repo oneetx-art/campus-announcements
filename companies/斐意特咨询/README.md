@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 斐意特咨询（Fitt Consulting Group）2026年校园招聘公告
-岗位:金融高管猎头顾问助理（Executive Search Researcher）  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:北京市  ·  截止:尽快投递
+
+- **岗位**: 金融高管猎头顾问助理（Executive Search Researcher）
+- **批次**: 秋招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/34389)

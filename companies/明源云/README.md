@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 明源云2026届秋季校园招聘正式启动！
-岗位:国内-顾问类-项目顾问岗; 国内-研发类-前端工程师岗,后端开发工程师岗,测试工程师岗; 国内-职能类-人力资源岗; 海外-实习类-Overseas Marketing Intern (Content Planning); Overseas Project Consultant-Intern  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市/武汉市/广州市/深圳市/佛山市/惠州市/东莞市  ·  截止:尽快投递
+
+- **岗位**: 国内-顾问类-项目顾问岗; 国内-研发类-前端工程师岗,后端开发工程师岗,测试工程师岗; 国内-职能类-人力资源岗; 海外-实习类-Overseas Marketing Intern (Content Planning); Overseas Project Consultant-Intern
+- **批次**: 秋招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 上海市 / 武汉市 / 广州市 / 深圳市 / 佛山市 / 惠州市 / 东莞市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/26042)

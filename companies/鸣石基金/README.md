@@ -10,12 +10,22 @@
 
 ## 当前招聘
 
-### 鸣石基金2026校园招聘全线开启
-岗位:量化因子工程师;AI量化工程师;QUANTITATIVE RESEARCH;QUANTITATIVE TRADER;量化开发工程师（C++）;市场管培生  ·  批次:秋招专场  ·  学历:硕士/博士  ·  城市:上海市  ·  截止:尽快投递
-
-👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/25757)
-
 ### 鸣石基金2026春季校园招聘正式开启
-岗位:量化因子工程师 AI算法工程师 暑期实习项目-Quantitative Research (monetization & optimization 量化开发工程师(C++)  ·  批次:实习/春招专场  ·  学历:硕士/博士  ·  城市:上海市  ·  截止:尽快投递
+
+- **岗位**: 量化因子工程师 AI算法工程师 暑期实习项目-Quantitative Research (monetization & optimization 量化开发工程师(C++)
+- **批次**: 实习 / 春招专场
+- **学历**: 硕士 / 博士
+- **城市**: 上海市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/35267)
+
+### 鸣石基金2026校园招聘全线开启
+
+- **岗位**: 量化因子工程师;AI量化工程师;QUANTITATIVE RESEARCH;QUANTITATIVE TRADER;量化开发工程师（C++）;市场管培生
+- **批次**: 秋招专场
+- **学历**: 硕士 / 博士
+- **城市**: 上海市
+- **截止**: ⏰ 尽快投递
+
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/25757)

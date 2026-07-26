@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 湖南神锋电子科技有限公司2026届校园招聘简章
-岗位:Zigbee stack系统工程师(负责Zigbee stack开发与Debug，客户需求支持);蓝牙软件系统工程师(负责Windows combo客户问题分析理清等);Zigbee嵌入式系统工程师(负责IEEE802.15.4 MAC开发与验证等);蓝牙嵌入式系统工程师(负责Bluetooth controller协议开发和除错等);嵌入式系统工程师(负责arm / risc-v系统固件开发维护等);应用工程师(AE)(负责BT audio 3in1 gaming dongle应用开发等);产品应用工程师(FAE)(负责蓝牙SoC平台应用示例开发等);模拟IC电路设计工程师(根据电路特性做好版图布局规划等)  ·  批次:秋招专场  ·  学历:硕士/博士  ·  城市:长沙市  ·  截止:尽快投递
+
+- **岗位**: Zigbee stack系统工程师(负责Zigbee stack开发与Debug，客户需求支持);蓝牙软件系统工程师(负责Windows combo客户问题分析理清等);Zigbee嵌入式系统工程师(负责IEEE802.15.4 MAC开发与验证等);蓝牙嵌入式系统工程师(负责Bluetooth controller协议开发和除错等);嵌入式系统工程师(负责arm / risc-v系统固件开发维护等);应用工程师(AE)(负责BT audio 3in1 gaming dongle应用开发等);产品应用工程师(FAE)(负责蓝牙SoC平台应用示例开发等);模拟IC电路设计工程师(根据电路特性做好版图布局规划等)
+- **批次**: 秋招专场
+- **学历**: 硕士 / 博士
+- **城市**: 长沙市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/33831)

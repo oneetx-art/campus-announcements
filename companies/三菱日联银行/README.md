@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 三菱日联银行（中国）2026 校园招聘正式启动
-岗位:Global Corporate ；Global Markets；Transaction Banking；Global Operations；Finance Technology；  ·  批次:春招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/天津市/沈阳市/大连市/上海市/无锡市/苏州市/杭州市/福州市/青岛市/武汉市/广州市/深圳市/成都市  ·  截止:已截止(2026-03-15)
+
+- **岗位**: Global Corporate ；Global Markets；Transaction Banking；Global Operations；Finance Technology；
+- **批次**: 春招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 天津市 / 沈阳市 / 大连市 / 上海市 / 无锡市 / 苏州市 / 杭州市 / 福州市 / 青岛市 / 武汉市 / 广州市 / 深圳市 / 成都市
+- **截止**: ❌ 已截止(2026-03-15)
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/35257)

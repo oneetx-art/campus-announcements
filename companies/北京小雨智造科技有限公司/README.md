@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 北京小雨智造科技有限公司2025年实习招聘
-岗位:具身智能算法工程师（Embodied AI）;算法研究员（Algorithm Research）;机器人运动控制算法工程师（Motion Planning）;VSLAM工程师;机器人软件开发工程师（ROS方向）  ·  批次:实习  ·  学历:本科/硕士/博士  ·  城市:北京市  ·  截止:尽快投递
+
+- **岗位**: 具身智能算法工程师（Embodied AI）;算法研究员（Algorithm Research）;机器人运动控制算法工程师（Motion Planning）;VSLAM工程师;机器人软件开发工程师（ROS方向）
+- **批次**: 实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/25059)

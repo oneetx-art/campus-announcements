@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 标普信评寒假实习项目启动 | 在实战中成长，为职业发展蓄力
-岗位:China Ratings Analytical Winter Intern  ·  批次:寒假实习  ·  学历:本科/硕士/博士  ·  城市:北京市  ·  截止:尽快投递
+
+- **岗位**: China Ratings Analytical Winter Intern
+- **批次**: 寒假实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/33279)

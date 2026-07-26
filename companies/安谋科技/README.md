@@ -10,12 +10,22 @@
 
 ## 当前招聘
 
-### 安谋科技2026校园招聘正式启动！
-岗位:Software Engineer;Design Engineer;Design Verification Engineer;Architecture & Modeling;Algorithm Engineer  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市/深圳市  ·  截止:尽快投递
-
-👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/25902)
-
 ### 芯向未来，上场才有答案｜安谋科技2026暑期实习启动！
-岗位:软件工程师(NPU);设计工程师(NPU Design);CPU软件工程师;设计工程师(CPU Design);CPU建模实习生;验证工程师;AI解决方案(产品架构)实习生;软件工程师(边缘,机器人等);GPU软件工程师;软件工程师(神经图形&AI);软件工程师(CI&CD)  ·  批次:暑期实习  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市/深圳市  ·  截止:已截止(2026-05-31)
+
+- **岗位**: 软件工程师(NPU);设计工程师(NPU Design);CPU软件工程师;设计工程师(CPU Design);CPU建模实习生;验证工程师;AI解决方案(产品架构)实习生;软件工程师(边缘,机器人等);GPU软件工程师;软件工程师(神经图形&AI);软件工程师(CI&CD)
+- **批次**: 暑期实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 上海市 / 深圳市
+- **截止**: ❌ 已截止(2026-05-31)
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/39967)
+
+### 安谋科技2026校园招聘正式启动！
+
+- **岗位**: Software Engineer;Design Engineer;Design Verification Engineer;Architecture & Modeling;Algorithm Engineer
+- **批次**: 秋招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 上海市 / 深圳市
+- **截止**: ⏰ 尽快投递
+
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/25902)

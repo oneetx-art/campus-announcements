@@ -10,12 +10,22 @@
 
 ## 当前招聘
 
-### 2026 索尼校园大使&年轻力场社群招募
-岗位:校园大使  ·  批次:春招专场  ·  学历:本科/硕士/博士  ·  城市:全国多地  ·  截止:已截止(2026-05-19)
-
-👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/39772)
-
 ### 索尼社会招聘&实习生招聘丨邀您投递简历
-岗位:Wireless Researcher;Technical Engineer - Human Computer Interaction;HRBP;Accounting Manager;Edge-Cloud AI Intern;Human-Computer Interaction (HCI) Intern;Interactive Content Developer Intern  ·  批次:暑期实习/社招  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市  ·  截止:尽快投递
+
+- **岗位**: Wireless Researcher;Technical Engineer - Human Computer Interaction;HRBP;Accounting Manager;Edge-Cloud AI Intern;Human-Computer Interaction (HCI) Intern;Interactive Content Developer Intern
+- **批次**: 暑期实习 / 社招
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 上海市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/41539)
+
+### 2026 索尼校园大使&年轻力场社群招募
+
+- **岗位**: 校园大使
+- **批次**: 春招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 全国多地
+- **截止**: ❌ 已截止(2026-05-19)
+
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/39772)

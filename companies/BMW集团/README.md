@@ -10,12 +10,22 @@ BMW集团是全球领先的汽车制造商，致力于打造高品质、创新�
 
 ## 当前招聘
 
-### 管培生招聘丨BMW集团管培生项目正式启动
-岗位:BMV Group AcceleratION Programme Associate AD/ADAS Technical PO; BMW Group AcceleratION Programme Associate AI PO; BMW Group AcceleratION Programme Associate Personalization PO; BMW Group AcceleratION Programme Associate E-drive Mechanical Design  ·  批次:秋招专场  ·  学历:硕士/博士  ·  城市:北京市/上海市  ·  截止:已截止(2026-02-28)
-
-👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/33692)
-
 ### 管培生招聘 | BMW集团管培生项目正式启动
-岗位:管理培训生（高压电池安全方向）  ·  批次:春招补招  ·  学历:硕士/博士  ·  城市:沈阳市  ·  截止:尽快投递
+
+- **岗位**: 管理培训生（高压电池安全方向）
+- **批次**: 春招补招
+- **学历**: 硕士 / 博士
+- **城市**: 沈阳市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/41740)
+
+### 管培生招聘丨BMW集团管培生项目正式启动
+
+- **岗位**: BMV Group AcceleratION Programme Associate AD/ADAS Technical PO; BMW Group AcceleratION Programme Associate AI PO; BMW Group AcceleratION Programme Associate Personalization PO; BMW Group AcceleratION Programme Associate E-drive Mechanical Design
+- **批次**: 秋招专场
+- **学历**: 硕士 / 博士
+- **城市**: 北京市 / 上海市
+- **截止**: ❌ 已截止(2026-02-28)
+
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/33692)

@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 【可远程】联合国经济和社会事务部互联网实习生（Department of Economic and Social Affairs）
-岗位:联合国经济和社会事务部互联网实习生（Department of Economic and Social Affairs）  ·  批次:实习  ·  学历:本科/硕士/博士  ·  城市:全国多地  ·  截止:已截止(2026-01-09)
+
+- **岗位**: 联合国经济和社会事务部互联网实习生（Department of Economic and Social Affairs）
+- **批次**: 实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 全国多地
+- **截止**: ❌ 已截止(2026-01-09)
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/34631)

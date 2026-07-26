@@ -11,6 +11,11 @@ Nova (NASDAQ: NVMI) is a global leading provider of innovative metrology solutio
 ## 当前招聘
 
 ### Nova 2026校招开启
-岗位:Application Engineer;Field Service Engineer;Service Coordinator Intern  ·  批次:实习/春招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/牡丹江市/上海市/无锡市/合肥市/深圳市/东莞市  ·  截止:尽快投递
+
+- **岗位**: Application Engineer;Field Service Engineer;Service Coordinator Intern
+- **批次**: 实习 / 春招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 牡丹江市 / 上海市 / 无锡市 / 合肥市 / 深圳市 / 东莞市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/39534)

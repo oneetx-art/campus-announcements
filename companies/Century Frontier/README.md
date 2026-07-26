@@ -11,6 +11,11 @@ Century Frontier Asset Management is a dynamic and rapidly growing quantitative 
 ## 当前招聘
 
 ### Century Frontier 2026 Global Campus Recruiting
-岗位:Quantitative Researcher;Machine Learning / Deep Learning Researcher;Data Engineer;C++ Developer;AI Infrastructure;Quantitative Trader  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:全国多地  ·  截止:尽快投递
+
+- **岗位**: Quantitative Researcher;Machine Learning / Deep Learning Researcher;Data Engineer;C++ Developer;AI Infrastructure;Quantitative Trader
+- **批次**: 秋招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 全国多地
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/25021)

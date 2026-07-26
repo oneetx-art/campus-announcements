@@ -10,12 +10,22 @@
 
 ## 当前招聘
 
-### 招聘 | 安富利招聘实习生
-岗位:市场与销售类实习生;技术类实习生;销售支持类实习生  ·  批次:实习/暑期实习  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市/深圳市  ·  截止:尽快投递
-
-👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/40524)
-
 ### 实习 | 安富利2026实习生计划
-岗位:Intern-Sales,Intern-SupplierManagement,Intern-FieldApplicationEngineer,Intern-DesignEngineer,Intern-IT,Intern-CustomerService/PricingProgramExecutive/InsideSales  ·  批次:实习/暑期实习  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市/南京市/苏州市/深圳市  ·  截止:尽快投递
+
+- **岗位**: Intern-Sales,Intern-SupplierManagement,Intern-FieldApplicationEngineer,Intern-DesignEngineer,Intern-IT,Intern-CustomerService/PricingProgramExecutive/InsideSales
+- **批次**: 实习 / 暑期实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 上海市 / 南京市 / 苏州市 / 深圳市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/40665)
+
+### 招聘 | 安富利招聘实习生
+
+- **岗位**: 市场与销售类实习生;技术类实习生;销售支持类实习生
+- **批次**: 实习 / 暑期实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 上海市 / 深圳市
+- **截止**: ⏰ 尽快投递
+
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/40524)

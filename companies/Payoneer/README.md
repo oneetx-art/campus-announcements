@@ -11,6 +11,11 @@ Payoneer派安盈是一家金融科技公司，致力于帮助全球中小企业
 ## 当前招聘
 
 ### Payoneer中国2026实习生项目，等你上车！
-岗位:Business Development/Sales Intern（上海/深圳）,Customer Success Intern（上海/深圳）,Digital Marketing Intern（上海）,Product Marketing Intern（上海）,Marketplace Operations Intern（上海）,FX Intern（外汇定价方向/深圳）  ·  批次:实习  ·  学历:本科/硕士/博士  ·  城市:上海市/深圳市  ·  截止:尽快投递
+
+- **岗位**: Business Development/Sales Intern（上海/深圳）,Customer Success Intern（上海/深圳）,Digital Marketing Intern（上海）,Product Marketing Intern（上海）,Marketplace Operations Intern（上海）,FX Intern（外汇定价方向/深圳）
+- **批次**: 实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 上海市 / 深圳市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/37466)

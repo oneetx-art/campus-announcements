@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 【2026年校招开始啦】乐天创研校园招聘
-岗位:Application Engineer (EN); Software Engineer (EN); Test Engineer (EN & JP); Product Manager (EN or JP)  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:大连市  ·  截止:尽快投递
+
+- **岗位**: Application Engineer (EN); Software Engineer (EN); Test Engineer (EN & JP); Product Manager (EN or JP)
+- **批次**: 秋招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 大连市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/25835)

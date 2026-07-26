@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 3M暑期实习生计划 | 解锁你的“智造”夏天（文末互动）
-岗位:Process Engineer,Equipment Engineer,Quality Engineer,Process Engineer, Automation Engineer  ·  批次:暑期实习  ·  学历:硕士/博士  ·  城市:上海市  ·  截止:已截止(2026-04-30)
+
+- **岗位**: Process Engineer,Equipment Engineer,Quality Engineer,Process Engineer, Automation Engineer
+- **批次**: 暑期实习
+- **学历**: 硕士 / 博士
+- **城市**: 上海市
+- **截止**: ❌ 已截止(2026-04-30)
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/39209)

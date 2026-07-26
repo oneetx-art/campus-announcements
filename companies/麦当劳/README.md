@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 总部校招 | 麦Future，就差一个你！
-岗位:产品管理（Product Management），后端开发（Back-end Development），前端开发（Front-end Development），用户体验（User Experience），IT测试（IT Testing），IT安全与合规（IT Security & Compliance）  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:南京市  ·  截止:尽快投递
+
+- **岗位**: 产品管理（Product Management），后端开发（Back-end Development），前端开发（Front-end Development），用户体验（User Experience），IT测试（IT Testing），IT安全与合规（IT Security & Compliance）
+- **批次**: 秋招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 南京市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/27742)

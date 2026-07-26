@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 迪艾斯半导体科技（上海）有限公司2026年校园招聘
-岗位:DIS Hardware Design Engineer（硬件设计工程师，工作地点：上海、合肥）;DIS Software Development Engineer（软件开发工程师，工作地点：合肥）  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:上海市/合肥市  ·  截止:尽快投递
+
+- **岗位**: DIS Hardware Design Engineer（硬件设计工程师，工作地点：上海、合肥）;DIS Software Development Engineer（软件开发工程师，工作地点：合肥）
+- **批次**: 秋招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 上海市 / 合肥市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/33808)

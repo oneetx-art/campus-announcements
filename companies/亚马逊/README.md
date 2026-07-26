@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 2026亚马逊实习生招聘宣讲会来啦，实习求职必看！
-岗位:应用科学家实习生（International Technology团队）,应用科学家实习生（智能制造团队）,测试开发工程师实习生,软件开发工程师实习生,软件开发工程师实习生（智能设备团队）,软件开发工程师实习生（智能制造团队）,软件开发工程师实习生,软件开发工程师实习生（Sustaining Operations团队）,软件开发工程师实习生（Alexa团队）,软件开发工程师实习生（OpenSearch团队）,Reliability Engineer Intern,Mechanical Process Engineer Intern,Product Design Engineer Intern,Site Technical Manager Intern,System Development Engineer Intern,解决方案架构师实习生,Network Dev Engineer Intern,数据中心设施管理技术支持实习生,数据中心运维技术支持工程师实习生,产品经理实习生（MBA）,商业分析实习生（电商运营团队）,商业分析实习生（全球采购部）,商业分析实习生（产品质量工程师）,商业分析实习生（供应商质量管理）,Financial Analyst Intern,数据中心物流专员实习生,云计算Sales Ops Analyst Intern,云计算Marketing Ops Intern,云计算市场拓展咨询代表实习生  ·  批次:实习/暑期实习  ·  学历:本科/硕士/博士  ·  城市:北京市/廊坊市/上海市/深圳市  ·  截止:尽快投递
+
+- **岗位**: 应用科学家实习生（International Technology团队）,应用科学家实习生（智能制造团队）,测试开发工程师实习生,软件开发工程师实习生,软件开发工程师实习生（智能设备团队）,软件开发工程师实习生（智能制造团队）,软件开发工程师实习生,软件开发工程师实习生（Sustaining Operations团队）,软件开发工程师实习生（Alexa团队）,软件开发工程师实习生（OpenSearch团队）,Reliability Engineer Intern,Mechanical Process Engineer Intern,Product Design Engineer Intern,Site Technical Manager Intern,System Development Engineer Intern,解决方案架构师实习生,Network Dev Engineer Intern,数据中心设施管理技术支持实习生,数据中心运维技术支持工程师实习生,产品经理实习生（MBA）,商业分析实习生（电商运营团队）,商业分析实习生（全球采购部）,商业分析实习生（产品质量工程师）,商业分析实习生（供应商质量管理）,Financial Analyst Intern,数据中心物流专员实习生,云计算Sales Ops Analyst Intern,云计算Marketing Ops Intern,云计算市场拓展咨询代表实习生
+- **批次**: 实习 / 暑期实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 廊坊市 / 上海市 / 深圳市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/37492)

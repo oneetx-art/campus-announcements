@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 德意志银行北上广工作机会
-岗位:投资银行部实习生；机构销售；企业银行部实习生；客户经理；运营专员；China GEM Sales - Vice President；Senior Relationship Manager (MNC) - VP；China Coverage Banker - Director；TSCO Operations Expert - Associate/AVP  ·  批次:实习  ·  学历:不限  ·  城市:北京市/上海市/广州市  ·  截止:尽快投递
+
+- **岗位**: 投资银行部实习生；机构销售；企业银行部实习生；客户经理；运营专员；China GEM Sales - Vice President；Senior Relationship Manager (MNC) - VP；China Coverage Banker - Director；TSCO Operations Expert - Associate/AVP
+- **批次**: 实习
+- **学历**: 不限
+- **城市**: 北京市 / 上海市 / 广州市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/24543)

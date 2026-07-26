@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 【可远程】联合国外层空间事务处实习生（United Nations Office for Outer Space Affairs）
-岗位:联合国外层空间事务处实习生（United Nations Office for Outer Space Affairs）  ·  批次:寒假实习  ·  学历:本科/硕士/博士  ·  城市:全国多地  ·  截止:已截止(2026-01-12)
+
+- **岗位**: 联合国外层空间事务处实习生（United Nations Office for Outer Space Affairs）
+- **批次**: 寒假实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 全国多地
+- **截止**: ❌ 已截止(2026-01-12)
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/34770)

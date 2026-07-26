@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 捷普校招 | 2026春季校招提前开启！
-岗位:EIT HR,EIT Buyer,EIT Planner,EIT Test Engineer,EIT Digital Factory,EIT Line Supervisor,EIT Process Engineer,EIT Industrial Engineer,EIT Project Coordinator,EIT Warehouse Supervisor,EIT Manufacturing Engineer,EIT Purchasing,EIT Quality Engineer,EIT Facility Engineer  ·  批次:春招专场  ·  学历:本科/硕士/博士  ·  城市:上海市/无锡市/广州市  ·  截止:尽快投递
+
+- **岗位**: EIT HR,EIT Buyer,EIT Planner,EIT Test Engineer,EIT Digital Factory,EIT Line Supervisor,EIT Process Engineer,EIT Industrial Engineer,EIT Project Coordinator,EIT Warehouse Supervisor,EIT Manufacturing Engineer,EIT Purchasing,EIT Quality Engineer,EIT Facility Engineer
+- **批次**: 春招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 上海市 / 无锡市 / 广州市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/35515)

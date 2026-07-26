@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 贝恩资本2027年暑期实习项目正式开启申请！
-岗位:Special Situations Summer Analyst 2027,2027 Summer Analyst, Path into Private Equity,2027 Credit Summer Analyst,2026 Summer Vice President, Real Estate  ·  批次:暑期实习  ·  学历:本科/硕士/博士  ·  城市:全国多地  ·  截止:尽快投递
+
+- **岗位**: Special Situations Summer Analyst 2027,2027 Summer Analyst, Path into Private Equity,2027 Credit Summer Analyst,2026 Summer Vice President, Real Estate
+- **批次**: 暑期实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 全国多地
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/35061)

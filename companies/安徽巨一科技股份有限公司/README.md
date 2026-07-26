@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 校招相关岗位招聘
-岗位:集团IT岗;战略投资岗;JEE Global Management Trainee（Campus Recruitment， USA,Germany,Japan,China,etc）;制造技术类;项目管理类;算法软件类;采购管培生;财务管培生;人力管培生;电气研发方向  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:合肥市/海外  ·  截止:尽快投递
+
+- **岗位**: 集团IT岗;战略投资岗;JEE Global Management Trainee（Campus Recruitment， USA,Germany,Japan,China,etc）;制造技术类;项目管理类;算法软件类;采购管培生;财务管培生;人力管培生;电气研发方向
+- **批次**: 秋招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 合肥市 / 海外
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/27276)

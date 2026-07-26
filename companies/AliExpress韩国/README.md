@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### AliExpress韩国｜Future Leader管培生计划来啦！速投！
-岗位:Future Leader管培生计划  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:杭州市  ·  截止:尽快投递
+
+- **岗位**: Future Leader管培生计划
+- **批次**: 秋招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 杭州市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/33400)

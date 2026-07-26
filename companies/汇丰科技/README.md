@@ -10,12 +10,22 @@
 
 ## 当前招聘
 
-### 汇丰科技 2026 校招：码定未来，职得无限！
-岗位:工程类;数据类  ·  批次:秋招专场  ·  学历:本科  ·  城市:广州市/西安市  ·  截止:尽快投递
-
-👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/24627)
-
 ### 2026汇丰科技实习项目启动：码定成长，职得奔赴！
-岗位:Cyber,Technical Business Analyst,Engineering,Data  ·  批次:实习  ·  学历:本科/硕士/博士  ·  城市:广州市/西安市  ·  截止:尽快投递
+
+- **岗位**: Cyber,Technical Business Analyst,Engineering,Data
+- **批次**: 实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 广州市 / 西安市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/38211)
+
+### 汇丰科技 2026 校招：码定未来，职得无限！
+
+- **岗位**: 工程类;数据类
+- **批次**: 秋招专场
+- **学历**: 本科
+- **城市**: 广州市 / 西安市
+- **截止**: ⏰ 尽快投递
+
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/24627)

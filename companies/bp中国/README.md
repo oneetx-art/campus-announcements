@@ -11,6 +11,11 @@ bp中国的校园招聘项目已经走过了十几个春秋，项目为期三年
 ## 当前招聘
 
 ### bp中国2026校园招聘正式开启
-岗位:2026 bp one commercial graduate programme  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:上海市  ·  截止:已截止(2025-10-31)
+
+- **岗位**: 2026 bp one commercial graduate programme
+- **批次**: 秋招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 上海市
+- **截止**: ❌ 已截止(2025-10-31)
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/28849)

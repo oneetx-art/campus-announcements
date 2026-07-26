@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### dentsu Z Camp 2026招募启动！加入全球顶尖营销传播团队！
-岗位:视觉先锋（VISUALIZER）; 文字说客（STORYTELLER）; 文化解读者（CULTURAL OBSERVER）; 社交玩家（SOCIAL PLAYER）; AI艺术家（AI INNOVATOR）; 数据解构师（DATA DECODER）  ·  批次:实习  ·  学历:本科/硕士/博士  ·  城市:上海市  ·  截止:已截止(2026-01-15)
+
+- **岗位**: 视觉先锋（VISUALIZER）; 文字说客（STORYTELLER）; 文化解读者（CULTURAL OBSERVER）; 社交玩家（SOCIAL PLAYER）; AI艺术家（AI INNOVATOR）; 数据解构师（DATA DECODER）
+- **批次**: 实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 上海市
+- **截止**: ❌ 已截止(2026-01-15)
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/33420)

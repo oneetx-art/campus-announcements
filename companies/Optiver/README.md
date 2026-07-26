@@ -11,6 +11,11 @@ Optiver是一家全球顶尖的电子交易做市商，专注于...
 ## 当前招聘
 
 ### 网申提醒 | Optiver 2026年暑期实习网申现已开启
-岗位:Quantitative Trading Internship; Quantitative Research Internship (BS/MS); Quantitative Research Internship (PhD)  ·  批次:暑期实习  ·  学历:本科/硕士/博士  ·  城市:上海市  ·  截止:尽快投递
+
+- **岗位**: Quantitative Trading Internship; Quantitative Research Internship (BS/MS); Quantitative Research Internship (PhD)
+- **批次**: 暑期实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 上海市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/27617)

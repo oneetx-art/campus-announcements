@@ -11,6 +11,11 @@ MODEC成立于1968年，是全球领先的海上油气浮式解决方案提供�
 ## 当前招聘
 
 ### MODEC中国2026春季校园招聘职位汇总
-岗位:Field Control Engineer 现场控制工程师;Structure Engineer 船体结构设计师;Branding and Communications Specialist 品牌与传播专员  ·  批次:春招专场  ·  学历:本科/硕士/博士  ·  城市:大连市/南通市  ·  截止:尽快投递
+
+- **岗位**: Field Control Engineer 现场控制工程师;Structure Engineer 船体结构设计师;Branding and Communications Specialist 品牌与传播专员
+- **批次**: 春招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 大连市 / 南通市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/38283)

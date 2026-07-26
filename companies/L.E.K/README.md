@@ -11,6 +11,11 @@ L.E.K.是一家咨询公司，在医疗领域等方面提供战略咨询服务�
 ## 当前招聘
 
 ### L.E.K.2026校园招聘已开启 | 11月15日网申截止
-岗位:Associate；Life Science Specialist；  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:上海市  ·  截止:已截止(2025-11-15)
+
+- **岗位**: Associate；Life Science Specialist；
+- **批次**: 秋招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 上海市
+- **截止**: ❌ 已截止(2025-11-15)
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/30788)

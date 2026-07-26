@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 精英集结！沃尔沃汽车2026 AI FDE CAMP实习生项目已开启
-岗位:Digital AI Coding Intern Program/数字化AI Coding 实习生项目  ·  批次:实习/暑期实习  ·  学历:本科/硕士/博士  ·  城市:上海市  ·  截止:尽快投递
+
+- **岗位**: Digital AI Coding Intern Program/数字化AI Coding 实习生项目
+- **批次**: 实习 / 暑期实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 上海市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/40022)

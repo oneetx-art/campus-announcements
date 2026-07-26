@@ -11,6 +11,11 @@ Lazada创立于2012年，是东南亚领先的电子商务平台，主要服务�
 ## 当前招聘
 
 ### 阿里国际｜Lazada 2027届实习生火热招聘中！附内推码，速投！
-岗位:技术类:AI应用算法工程师,AI Infra工程师,AI应用研发工程师;运营类:Content Operations,Partner Operations,Merchandise Operations,Supply Chain Operations,Sales Operations,Industry Operations,Product Operations,User Operations,国际化产品运营,AI Product Operations;产品类:国际化产品经理,产品经理,AI产品经理;设计类:User Experience (UX) Researcher,User Experience (UX) Designer  ·  批次:实习/春招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/杭州市/广州市/深圳市  ·  截止:尽快投递
+
+- **岗位**: 技术类:AI应用算法工程师,AI Infra工程师,AI应用研发工程师;运营类:Content Operations,Partner Operations,Merchandise Operations,Supply Chain Operations,Sales Operations,Industry Operations,Product Operations,User Operations,国际化产品运营,AI Product Operations;产品类:国际化产品经理,产品经理,AI产品经理;设计类:User Experience (UX) Researcher,User Experience (UX) Designer
+- **批次**: 实习 / 春招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 杭州市 / 广州市 / 深圳市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/39704)

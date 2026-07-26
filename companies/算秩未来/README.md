@@ -11,6 +11,11 @@
 ## 当前招聘
 
 ### 顶尖人才计划 | 算秩未来春季校园招聘正式启动，多岗位招募，有转正机会！
-岗位:云原生AI研发实习生,智能调度研发实习生,智能运维研发实习生,网络开发实习生,Al-Native平台工程实习生,Al-Native数据基础设施实习生,大模型算法实习生(LLMAgent/Reasoning方向),AI智能云平台开发实习生,AIInfra推理/训练实习生,Lifescience Research Intern,Core Fundation Model Research Intern,Lifescience Large Language Model Research Intern,Lifescience Fundation Model Research Intern,生命科学大语言模型数据科学实习生  ·  批次:春招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市  ·  截止:尽快投递
+
+- **岗位**: 云原生AI研发实习生,智能调度研发实习生,智能运维研发实习生,网络开发实习生,Al-Native平台工程实习生,Al-Native数据基础设施实习生,大模型算法实习生(LLMAgent/Reasoning方向),AI智能云平台开发实习生,AIInfra推理/训练实习生,Lifescience Research Intern,Core Fundation Model Research Intern,Lifescience Large Language Model Research Intern,Lifescience Fundation Model Research Intern,生命科学大语言模型数据科学实习生
+- **批次**: 春招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 上海市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/38621)

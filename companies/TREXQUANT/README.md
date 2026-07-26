@@ -11,6 +11,11 @@ Trexquant成立于2012年，是一家充满活力的全球对冲基金，总部�
 ## 当前招聘
 
 ### 招聘 | TREXQUANT 2026年春季校园招聘
-岗位:暑期实习生(full-time intern，BJ),量化研究员(全职),AI工程师(全职),Global Alpha Researcher (Part-time)  ·  批次:春招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/上海市  ·  截止:尽快投递
+
+- **岗位**: 暑期实习生(full-time intern，BJ),量化研究员(全职),AI工程师(全职),Global Alpha Researcher (Part-time)
+- **批次**: 春招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 上海市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/38143)

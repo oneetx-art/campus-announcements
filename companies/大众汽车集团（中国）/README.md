@@ -10,17 +10,32 @@
 
 ## 当前招聘
 
-### 大众汽车集团（中国）2026届校园招聘正式启动
-岗位:研发类;软件类;智能物流;技术服务;职能类;IT类;市场与销售类  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/合肥市/全国多地  ·  截止:尽快投递
+### 大众汽车集团（中国）2026神经多元暑期实习项目正式启动招募
 
-👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/25790)
+- **岗位**: IT Intern、Company Service Intern、Purchasing Intern、Regional Employee Service Intern (HR Intern)、Integrity & Compliance Intern、Automotive After-sales Intern；
+- **批次**: 实习 / 暑期实习
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 合肥市
+- **截止**: ⏰ 尽快投递
+
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/40880)
 
 ### 校招正当时 共赴大众好春光 I 大众汽车集团（中国）2026届春招正式启动
-岗位:研发类（整车研发、电池等部件研发、软件开发及应用、电子电气架构（CEA）、产品与项目管理）；IT类（数据与人工智能、DevOps（开发运维）、信息安全、产品与项目管理）；职能类（财务、人力资源、企业安全、采购）  ·  批次:春招专场  ·  学历:本科/硕士/博士  ·  城市:北京市/大连市/上海市/合肥市  ·  截止:尽快投递
+
+- **岗位**: 研发类（整车研发、电池等部件研发、软件开发及应用、电子电气架构（CEA）、产品与项目管理）；IT类（数据与人工智能、DevOps（开发运维）、信息安全、产品与项目管理）；职能类（财务、人力资源、企业安全、采购）
+- **批次**: 春招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 大连市 / 上海市 / 合肥市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/36300)
 
-### 大众汽车集团（中国）2026神经多元暑期实习项目正式启动招募
-岗位:IT Intern、Company Service Intern、Purchasing Intern、Regional Employee Service Intern (HR Intern)、Integrity & Compliance Intern、Automotive After-sales Intern；  ·  批次:实习/暑期实习  ·  学历:本科/硕士/博士  ·  城市:北京市/合肥市  ·  截止:尽快投递
+### 大众汽车集团（中国）2026届校园招聘正式启动
 
-👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/40880)
+- **岗位**: 研发类;软件类;智能物流;技术服务;职能类;IT类;市场与销售类
+- **批次**: 秋招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市 / 合肥市 / 全国多地
+- **截止**: ⏰ 尽快投递
+
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/25790)

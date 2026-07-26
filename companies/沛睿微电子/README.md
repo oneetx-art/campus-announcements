@@ -10,12 +10,22 @@
 
 ## 当前招聘
 
-### 沛睿微电子2026届校园招聘简章
-岗位:数字IC设计工程师(可登录https://www.raymx-micro.com/查询);IC验证工程师(可登录https://www.raymx-micro.com/查询);固件/软件开发工程师(可登录https://www.raymx-micro.com/查询)  ·  批次:秋招专场  ·  学历:本科/硕士/博士  ·  城市:苏州市/合肥市  ·  截止:尽快投递
-
-👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/25201)
-
 ### 沛睿2026届校招火热进行中
-岗位:数字IC设计工程师 IC验证工程师 固件/软件开发工程师；  ·  批次:秋招专场  ·  学历:硕士/博士  ·  城市:合肥市  ·  截止:尽快投递
+
+- **岗位**: 数字IC设计工程师 IC验证工程师 固件/软件开发工程师；
+- **批次**: 秋招专场
+- **学历**: 硕士 / 博士
+- **城市**: 合肥市
+- **截止**: ⏰ 尽快投递
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/31411)
+
+### 沛睿微电子2026届校园招聘简章
+
+- **岗位**: 数字IC设计工程师(可登录https://www.raymx-micro.com/查询);IC验证工程师(可登录https://www.raymx-micro.com/查询);固件/软件开发工程师(可登录https://www.raymx-micro.com/查询)
+- **批次**: 秋招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 苏州市 / 合肥市
+- **截止**: ⏰ 尽快投递
+
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/25201)
