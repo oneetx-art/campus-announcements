@@ -6,7 +6,7 @@
 ## 公司
 性质:外企 · 行业:咨询
 
-未明确
+贝恩公司是全球知名的管理咨询企业，为客户提供专业商业咨询服务
 
 ## 当前招聘
 
@@ -29,13 +29,3 @@
 - **截止**: ❌ 已截止(2026-04-16)
 
 👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/38901)
-
-### 校招 | 贝恩公司大中华区2026年校园招聘现已启动！
-
-- **岗位**: 助理顾问（Associate Consultant）；暑期助理顾问实习生（Associate Consultant Intern）；资深顾问（Consultant）；暑期顾问（Summer Associate）
-- **批次**: 实习 / 暑期实习 / 秋招专场 / 校园招聘
-- **学历**: 本科 / 硕士
-- **城市**: 北京市 / 上海市 / 香港 / 全国多地
-- **截止**: ❌ 已截止(2025-09-02)
-
-👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/24478)
