@@ -10,6 +10,16 @@
 
 ## 当前招聘
 
+### 联想集团2027全球管培生GFL项目，正式启动！
+
+- **岗位**: Al Technology Innovation EngineerAl Solution ArchitectAl Cloud Solution ArchitectAl Cloud Product Ma...
+- **批次**: 秋招专场
+- **学历**: 本科 / 硕士 / 博士
+- **城市**: 北京市
+- **截止**: ⏰ 尽快投递
+
+👉 [立即投递 / 查看完整详情](https://www.besthotsearch.com/announcements1/42361)
+
 ### 联想集团26届秋招
 
 - **岗位**: AI软件开发,嵌入式开发,材料工程,算法(NLP/深度学习/视觉),结构设计,散热,机器人,测试,电路,linux,客户端开发,电池电源,射频,Java,python,数据挖掘分析,AI产品经理,运营,项目管理,硬件产品经理,数据产品,用户研究,包装,商务,营销,商分,内容,电商运营,供应链管理,质量,环境,制造,自动化,人力,财务,法务,行政
